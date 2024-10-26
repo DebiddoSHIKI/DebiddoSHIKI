@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on witch everything  you can
 - 📫 How to reach me ...
 - 😄 Pronouns: him/his
-- ⚡ Fun fact: I'm helpful, nice, I love coffee, anime and Japan
+- ⚡ Fun fact: I'm helpful, nice, I love coffee, anime and the Japan
 
 <!---
 DebiddoSHIKI/DebiddoSHIKI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
